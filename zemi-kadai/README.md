@@ -1,2 +1,0 @@
-# keitaisokaiseki
-# keitaisokaiseki
